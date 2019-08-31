@@ -8,12 +8,6 @@ As you can see from the image above not only are the opportunities with computin
 
 
 ### Combining creativeness with computing skills
+![](teamazing-erlebnisbuilding-design-thinking-Facebook.jpg)
+Computer science is a field that requires skill however it is also a field that allows creativeness. Although there are many varying jobs in the field in many cases it allows a technical foundation to interact with a person's creative flow. It also advocates for a problem solving mindset which develops a great attitude within a worker as they will approach all their problems with a mindset of finding a solution. Therefore it not only provides you with essential skills, it gives you characteristics that a company are looking for within a worker and give you an advantage when looking for jobs.
 
-Computer science is a field that requires skill however it is also a field that allows creativeness. Although there are many varying jobs in the field in many cases it allows a c
-
-1. one
-2. two
-3. three
-
-* bullet
-* bullet
